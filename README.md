@@ -77,6 +77,8 @@ RESOLUCIÓN DE EJERCICIOS:
 
 VIDEO DE EXPLICACIÓN:
 
+https://drive.google.com/file/d/1SN0AGeTSaqn9RsKWym6Lh-oz7koYZU-r/view?usp=sharing
+
 
 
 CONCLUSIONES:
